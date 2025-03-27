@@ -1,11 +1,11 @@
 # Fried rice with egg
 
-## What you need? 
+## Ingredients
 - rice
 - oil
 - egg
 - Salt
 
-## How to make it
+## Instructions
 1. Heat the oil. 
 2. Put the egg, rice, salt, mix them, wait.
