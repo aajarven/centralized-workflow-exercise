@@ -29,7 +29,6 @@
    - Take eggs in a plate.
 5. **Fry tomatoes:**
    - Add tomato cubes and fry for 10 sec.
-5. **(This is an error need to be fixed)?!$?????**
 6. **Fry everything together:**
    - Add eggs back in wok.
    - Add 1 tablespoon soy sauce.
