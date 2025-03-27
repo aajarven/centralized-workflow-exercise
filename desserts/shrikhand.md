@@ -6,7 +6,7 @@ Chopped pistachios and almonds
 Cardamom
 Saffron
 
-## Procedure:
+## Instructions:
 Hang greek yoghurt for about 4 hours in the fridge in a cheese-cloth to drain as much water out as possible.
 Add rest of the ingredients and mix well until the sugar dissolves.
 Enjoy chilled.
