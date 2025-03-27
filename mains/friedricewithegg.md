@@ -8,8 +8,7 @@
 
 ## Instructions
 1. Heat the oil. 
-2. Put the egg, rice, salt, mix them, wait. So simple. 
-
+2. Mix the egg, rice, and salt, and wait.
 gasgasdfafasdfasdasdwe23234gasdlfgjkasdölfkasdlgöf
 
-This is the end of this recip.
+This is the end of this recipe.
