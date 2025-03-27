@@ -3,7 +3,7 @@
 
 ## Ingredients
 
-- **9-12** no-boil lasagna noodles
+- **90-120** no-boil lasagna noodles
 - **1** large jar (about 24 oz) of marinara sauce
 - **15 oz** ricotta cheese
 - **1** egg
@@ -52,3 +52,9 @@
    - Let the lasagna cool for 10-15 minutes before slicing.
    - Garnish with fresh basil leaves if desired.
    - Serve warm and enjoy!
+
+
+## Notes
+
+- Substitute the mixture of cheeses (step 3. and 5.) by a 
+  home-cooked bechamel sauce for a happy lasagna :)
