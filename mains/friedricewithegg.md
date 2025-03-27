@@ -10,4 +10,4 @@
 1. Heat the oil. 
 2. Put the egg, rice, salt, mix them, wait.
 
-This is the end.
+This is the end of this recip.
