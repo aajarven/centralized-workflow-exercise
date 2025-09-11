@@ -1,4 +1,4 @@
-# Leak soup recipe
+# Leek soup recipe
 
 ## Ingredients
 
