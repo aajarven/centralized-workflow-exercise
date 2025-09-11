@@ -4,7 +4,8 @@
 ## Ingredients
 
 - Rice
-- Fillers( Eggplant, meat, kimchi...)
+- Fillers (Eggplant, meat, kimchi...)
+
 - Seaweed sheets
 
 
