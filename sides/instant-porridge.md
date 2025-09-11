@@ -8,7 +8,7 @@
 ## Instructions
 
 1. Prep the addons to your liking (slice/mush the banana etc)
-1. Pour the instant oats on a deep plate
-1. Add enough water to make them all soggy
-1. Wait a couple of minutes
-1. Enjoy
+2. Pour the instant oats on a deep plate
+3. Add enough water to make them all soggy
+4. Wait a couple of minutes
+5. Enjoy
